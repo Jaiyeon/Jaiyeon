@@ -1,3 +1,5 @@
+Hi there! 
+
 - 👋 Hi, I’m @Jaiyeon
 - 👀 I’m interested in Front-end coding
 - 🌱 I'm a newbie learner in html and css
