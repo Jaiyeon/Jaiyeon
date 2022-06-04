@@ -1,4 +1,4 @@
-### Hi there 👋, I am is Jenny
+### Hi there 👋, I am Jenny!
 #### Ux Designer based in Atlanta, GA🎨
 ![Ux Designer based in Atlanta, GA🎨](https://media-exp1.licdn.com/dms/image/C5616AQFeVUUGRpzgZw/profile-displaybackgroundimage-shrink_200_800/0/1654372983050?e=1659571200&v=beta&t=zWYl6dzVKbybz_nfMdzplcfWXbsuHk2kEfFjHAytTsg)
 
